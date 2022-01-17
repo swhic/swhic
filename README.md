@@ -1,7 +1,7 @@
 - 👋 Hi! 
 - 👀 ecological thought
 - 🌱 norns teletype er301
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on phenomenological! performances
 - 📫 @swhic
 
 <!---
